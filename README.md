@@ -11,11 +11,12 @@ Sonia
 Daniel
 Api - https://www.youtube.com/watch?v=gQsAvQvAxg8
 Blaze
-Krishin
+Krishin - https://www.youtube.com/shorts/6gRL_zmGZDE whatever krishin does in his room at night
 Chani
 Nasser 
 Jonah - https://www.youtube.com/watch?v=_sH-o4Vww0Q jonah at the park doing calisthetics when every comes up tot tlakto him
 Louie
+Krishin - Krishin when u say his name 3 times https://www.youtube.com/shorts/Gl7Y2yN9AGY (play in reverse)
 Joe 
 Victor
 Sam (canterbury)
