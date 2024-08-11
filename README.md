@@ -22,9 +22,10 @@ Victor
 Sam (canterbury)
 Sam (aut)
 Josh the Bosh
-Bianca
-Ana - ana whenever anyone says a fact (its false)  use the loading symbol
-Marie
+Bianca - https://www.instagram.com/reel/C9xDIMlR_a0/?igsh=MW1xNTlxaWlqbXZmcA== on her morning stroll
+
+Ana - ana whenever anyone says a fact (its false)  use the loading symbol on gato
+Marie 
 Iris
 Jerry
 Twiddles - https://cdn.discordapp.com/attachments/488578334167531520/1270301598098128906/image.png?ex=66b9cb8e&is=66b87a0e&hm=f30078a640a8e639eb838115d6edfd85ef16eac1f32fda33414c97c97a1feb99&
@@ -33,6 +34,6 @@ Kedar - Kedar at magic (just a black screen)
 Alex Brown
 Damian - umm what the sigma
 Jowen - Jowen bc api doesn't like him anymore https://www.youtube.com/watch?v=mrPYtw3QPhU
-Costas
+Costas 
 
 
