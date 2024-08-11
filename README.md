@@ -3,6 +3,7 @@ slander of everyone of relevence if your not slandered you therefore are not rel
 Hunter (special slander)
 liam (special slander)
 Beth - https://www.tiktok.com/@steven_roblox_man/video/7304081282256899374 \n
+Beth - breath
 Cool James 
 Cringe James
 Paul
@@ -12,10 +13,10 @@ Api - https://www.youtube.com/watch?v=gQsAvQvAxg8
 Blaze
 Krishin
 Chani
-Nasser
-Jonah
+Nasser 
+Jonah - https://www.youtube.com/watch?v=_sH-o4Vww0Q jonah at the park doing calisthetics when every comes up tot tlakto him
 Louie
-Joe
+Joe 
 Victor
 Sam (canterbury)
 Sam (aut)
